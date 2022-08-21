@@ -1,1 +1,1 @@
-# github-check
+編集済み
